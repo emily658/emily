@@ -1,4 +1,4 @@
 ### Oi 
-![](https://pixabay.com/pt/gifs/desenho-animado-3d-ol%C3%A1-3402/)
+![](https://images.app.goo.gl/RbMHSgfUDGDYP34A7)
 
-Sou **MARLON.**
+Sou **EMILY.**
