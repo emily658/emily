@@ -1,4 +1,5 @@
 ### Oi 
-![](https://images.app.goo.gl/RbMHSgfUDGDYP34A7)
+![](![Uploading giphy.gif…]()
+)
 
 Sou **EMILY.**
